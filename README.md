@@ -1,1 +1,1 @@
-Don't revise my notes, thanks
+Don't delete the notes, thanks
